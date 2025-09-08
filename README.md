@@ -1,0 +1,2 @@
+# Quran.github.io
+Allah
